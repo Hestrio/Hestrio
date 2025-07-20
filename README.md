@@ -22,7 +22,9 @@
 <img width="50" height="50" src="https://github.com/user-attachments/assets/6eb72330-6116-498d-8980-cdbbb0c96eee" />
 <p align="center">
 
-![stressed-jayce-talis](https://github.com/user-attachments/assets/c70f0f39-50a9-4653-ba16-d75f27d2e0da) ![league-of-legends-jayce-giopara](https://github.com/user-attachments/assets/574fc34e-86b4-441b-a7ae-8dc472eb41d0) ![jayvik-arcane-jayce-and-viktor-jayce-talis-arcane-season-2](https://github.com/user-attachments/assets/3fb8f556-e360-4c93-a059-912b6c7cb5bf)
+![stressed-jayce-talis](https://github.com/user-attachments/assets/c70f0f39-50a9-4653-ba16-d75f27d2e0da) 
+![league-of-legends-jayce-giopara](https://github.com/user-attachments/assets/574fc34e-86b4-441b-a7ae-8dc472eb41d0) 
+![jayvik-arcane-jayce-and-viktor-jayce-talis-arcane-season-2](https://github.com/user-attachments/assets/3fb8f556-e360-4c93-a059-912b6c7cb5bf)
 
 
 
