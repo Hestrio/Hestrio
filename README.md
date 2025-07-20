@@ -24,8 +24,8 @@
 
 ![stressed-jayce-talis](https://github.com/user-attachments/assets/c70f0f39-50a9-4653-ba16-d75f27d2e0da) 
 ![league-of-legends-jayce-giopara](https://github.com/user-attachments/assets/574fc34e-86b4-441b-a7ae-8dc472eb41d0) 
-![jayvik-arcane-jayce-and-viktor-jayce-talis-arcane-season-2](https://github.com/user-attachments/assets/f8aab99b-a94b-4c1a-aaa0-7070cf3f0811)
 ![jayce-talis-strawberry](https://github.com/user-attachments/assets/bf605f32-4089-41c3-a894-475696b43d85)
+![jayce-jayce-arcane](https://github.com/user-attachments/assets/c9a9be59-5ab4-47c7-a6a7-d97d8812bbe8)
 
 
 
