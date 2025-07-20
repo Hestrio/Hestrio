@@ -25,8 +25,7 @@
 ![stressed-jayce-talis](https://github.com/user-attachments/assets/c70f0f39-50a9-4653-ba16-d75f27d2e0da) 
 ![league-of-legends-jayce-giopara](https://github.com/user-attachments/assets/574fc34e-86b4-441b-a7ae-8dc472eb41d0) 
 ![jayce-talis-strawberry](https://github.com/user-attachments/assets/bf605f32-4089-41c3-a894-475696b43d85)
-![team-fight-tactics-chibi-jayce](https://github.com/user-attachments/assets/3345e35d-47ed-4400-a0a1-e3ebb7c4507e)
-
+  <p align="center">
 
 
 
