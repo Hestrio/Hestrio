@@ -8,8 +8,8 @@
   <br>  </h1>${\textsf{\color{#6E5097} 〃 tone tag user!!! pls feed me tonetags ⸝⸝ }}$
   <p align="center">
 
-  ![jayvik-viktor](https://github.com/user-attachments/assets/3eb0c0b7-735b-44c2-82ec-ba74d91444d2)
-  <p align="center">
+ ![stressed-jayce-talis](https://github.com/user-attachments/assets/8f2746b4-cb9f-4d60-825c-1d846a6399c1)
+
 
   <p align="center">
   <img width="572" height="572" alt="image" src="https://github.com/user-attachments/assets/fc4391e3-6e74-4cc1-b61f-0dd852d9a85b" />
