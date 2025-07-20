@@ -9,7 +9,7 @@
   <p align="center">
  
   <p align="center">
-![league-of-legends-jayce-giopara](https://github.com/user-attachments/assets/8109dc20-ae11-4aee-a924-642e457be7e2)
+![stressed-jayce-talis](https://github.com/user-attachments/assets/c70f0f39-50a9-4653-ba16-d75f27d2e0da)
 
 
   <p align="center">
