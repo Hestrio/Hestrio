@@ -3,8 +3,6 @@
    <br> ${\textsf{\color{#6E5098} ⸝⸝ ENFP　　BRYCE ︵ JAYCE　۶ৎ}}$ 
  <br>
 <img width="50" height="50" src="https://github.com/user-attachments/assets/6eb72330-6116-498d-8980-cdbbb0c96eee" />
-<p align="center">
-<img width="50" height="50" src="https://github.com/user-attachments/assets/6eb72330-6116-498d-8980-cdbbb0c96eee" />
 <img width="50" height="50" src="https://github.com/user-attachments/assets/6eb72330-6116-498d-8980-cdbbb0c96eee" />
 <img width="50" height="50" src="https://github.com/user-attachments/assets/6eb72330-6116-498d-8980-cdbbb0c96eee" />
 <img width="50" height="50" src="https://github.com/user-attachments/assets/6eb72330-6116-498d-8980-cdbbb0c96eee" />
