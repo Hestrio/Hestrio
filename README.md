@@ -2,8 +2,8 @@
 <img width="1257" height="385" alt="image" src="https://github.com/user-attachments/assets/543feb42-74be-4145-ae48-963434ed76c7" />
 
   <p align="center"> 
-    <br> </h1>${\textsf{\color{#6E5098} ⸝⸝ ENFPㆍ-  BRYCE ︵ JAYCE　۶ৎ}}$ 
- <br>
+    <br> </h1>${\textsf{\color{#6E5098} ⸝⸝ ENFPㆍ-  BRYCE ︵ JAYCE　۶⟡୧}}$ 
+ <br>  </h1>${\textsf{\color{#6E5097} ⌞ HE ) HIM ⌝ }}$
  
 
 <img width="572" height="572" alt="image" src="https://github.com/user-attachments/assets/904baeee-da98-4953-8c9b-c634870c5c95" />
