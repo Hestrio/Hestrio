@@ -21,5 +21,7 @@
 <img src="https://files.catbox.moe/edgvvk.png"/>
 </p>
 <p align="center">
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/2379e6e5-9fbf-4897-955b-41d5ff6e4a08" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/3e0aaae7-6028-4e86-b67d-227ea383d508" />
+
 
 <img width="1257" height="142" alt="yaaa" src="https://github.com/user-attachments/assets/6a3b26c1-59d4-4e60-b1e9-a0ed9ca734f5" />
