@@ -5,8 +5,11 @@
     <br> </h1>${\textsf{\color{#6E5098} ⸝⸝ ENFPㆍ-  BRYCE ︵ JAYCE　۶⟡୧}}$ 
  <br>  </h1>${\textsf{\color{#6E5097} ⌞ HE ) HIM ⌝ C+H }}$
   <br>  </h1>${\textsf{\color{#6E5097} ⌞ ۶⟡୧ demiromantic / ⸝ queer...}}$
-  <br>  </h1>${\textsf{\color{#6E5097} 〃 tone tag user!!! pls feed me tonetags}}$
+  <br>  </h1>${\textsf{\color{#6E5097} 〃 tone tag user!!! pls feed me tonetags ⸝⸝ }}$
   <p align="center">
+
+  ![jayvik-viktor](https://github.com/user-attachments/assets/3eb0c0b7-735b-44c2-82ec-ba74d91444d2)
+
   
   <img width="572" height="572" alt="image" src="https://github.com/user-attachments/assets/fc4391e3-6e74-4cc1-b61f-0dd852d9a85b" />
   <p align="center">
