@@ -4,10 +4,11 @@
   <p align="center"> 
     <br> </h1>${\textsf{\color{#6E5098} ⸝⸝ ENFPㆍ-  BRYCE ︵ JAYCE　۶⟡୧}}$ 
  <br>  </h1>${\textsf{\color{#6E5097} ⌞ HE ) HIM ⌝ C+H }}$
-   <p align="center">
   <br>  </h1>${\textsf{\color{#6E5097} ⌞ ۶⟡୧ demiromantic / ⸝ queer...}}$
   <p align="center">
   <br>  </h1>${\textsf{\color{#6E5097} 〃 tone tag user!!! pls feed me tonetags}}$
+  <p align="center">
+  
   <img width="572" height="572" alt="image" src="https://github.com/user-attachments/assets/fc4391e3-6e74-4cc1-b61f-0dd852d9a85b" />
   <p align="center">
 
