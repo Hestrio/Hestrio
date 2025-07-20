@@ -8,7 +8,8 @@
   <br>  </h1>${\textsf{\color{#6E5097} 〃 tone tag user!!! pls feed me tonetags ⸝⸝ }}$
   <p align="center">
 
- ![stressed-jayce-talis](https://github.com/user-attachments/assets/8f2746b4-cb9f-4d60-825c-1d846a6399c1)
+![league-of-legends-jayce-giopara](https://github.com/user-attachments/assets/8109dc20-ae11-4aee-a924-642e457be7e2)
+  <p align="center">
 
 
   <p align="center">
