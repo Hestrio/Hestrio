@@ -23,7 +23,7 @@
 <p align="center">
 
 <p align="center">
-  <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&cover_image=true&theme=novatorem&show_offline=false&background_color=725b73&interchange=false&bar_color=f9eed9&bar_color_cover=true)]([https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&redirect=true](https://open.spotify.com/user/17u9eqel4h979qfe668oldvwe))>
+  <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&cover_image=true&theme=novatorem&show_offline=false&background_color=725b73&interchange=false&bar_color=f9eed9&bar_color_cover=true)]([https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&redirect=true](crane wives))>
   <a href="https://github.com/shinminase/marquee/">
 
 <img width="1257" height="142" alt="yaaa" src="https://github.com/user-attachments/assets/6a3b26c1-59d4-4e60-b1e9-a0ed9ca734f5" />
