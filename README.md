@@ -10,7 +10,7 @@
  
 
 ![stressed-jayce-talis](https://github.com/user-attachments/assets/c70f0f39-50a9-4653-ba16-d75f27d2e0da)
-
+  <p align="center">
 
   <p align="center">
   <img width="572" height="572" alt="image" src="https://github.com/user-attachments/assets/fc4391e3-6e74-4cc1-b61f-0dd852d9a85b" />
