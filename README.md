@@ -6,7 +6,7 @@
  <br>  </h1>${\textsf{\color{#6E5097} ⌞ HE ) HIM ⌝ }}$
   <p align="center">
 
-<img width="572" height="572" alt="image" src="https://github.com/user-attachments/assets/aecc5b41-09a1-49bc-acc7-4d5519ee164f" />
+<img width="572" height="572" alt="image" src="https://github.com/user-attachments/assets/056c1903-a079-42a1-88ce-3ba4e62277e5" />
 <p align="center">
    
 
