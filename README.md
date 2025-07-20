@@ -5,7 +5,6 @@
     <br> </h1>${\textsf{\color{#6E5098} ⸝⸝ ENFPㆍ-  BRYCE ︵ JAYCE　۶⟡୧}}$ 
  <br>  </h1>${\textsf{\color{#6E5097} ⌞ HE ) HIM ⌝ C+H }}$
   <br>  </h1>${\textsf{\color{#6E5097} ⌞ ۶⟡୧ demiromantic / ⸝ queer...}}$
-  <p align="center">
   <br>  </h1>${\textsf{\color{#6E5097} 〃 tone tag user!!! pls feed me tonetags}}$
   <p align="center">
   
