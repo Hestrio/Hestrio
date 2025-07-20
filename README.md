@@ -22,7 +22,10 @@
 </p>
 <p align="center">
 
-<gif width="100" height="50" alt="image" src="https://github.com/user-attachments/assets/a4fc7299-197b-40df-b5f3-0de61eebdc9e" />
+
+<p align="center">
+<img src="https://files.catbox.moe/edgvvk.png"/>
+</p>
 
 
 <img width="1257" height="142" alt="yaaa" src="https://github.com/user-attachments/assets/6a3b26c1-59d4-4e60-b1e9-a0ed9ca734f5" />
